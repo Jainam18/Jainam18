@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **jainamrajput.work@gmail.com**
 
-- 📄 Here's My: [Resume](Resume)
+- 📄 Here's My: [Resume](https://drive.google.com/drive/folders/1zaS1krZeQPr1YBxdxjttgTWfbpge3Vvk?usp=share_link)
 
 - ⚡ Fun fact **I love playing guitar and listening to music.**
 
